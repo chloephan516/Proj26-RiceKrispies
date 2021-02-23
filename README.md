@@ -1,0 +1,1 @@
+This recipe will show you how to make a quick and tasty treat for any gatherings. Rice krispies are a classic and delicious snack for friends and families. 
